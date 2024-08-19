@@ -10,6 +10,7 @@ Meu nome é João Victor
 
 [@joao__silva015](https://www.instagram.com/joao__silva015?igsh=MWpseW9iYnRzeDN2OQ==)
 
-![](https://media1.tenor.com/m/It_uScpL9TQAAAAd/yurialberto.gif)
+
+![](https://media1.tenor.com/m/fXfaqPLEnWIAAAAd/escorregando-yuri-alberto.gif)
 
 
